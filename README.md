@@ -1,0 +1,1 @@
+# SGSvs.BV-GenAIStrategy
